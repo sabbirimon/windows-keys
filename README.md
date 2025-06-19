@@ -138,6 +138,7 @@
 If you like what I do, maybe consider buying me a coffee 🥺👉👈
 
 <a href="coff.ee/SABBIRIMON" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-red.png" alt="Buy Me A Coffee" width="150" ></a>
+[Buy Me A Coffee](coff.ee/SABBIRIMON)
 <br>
 QR
 <br>
